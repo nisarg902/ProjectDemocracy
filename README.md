@@ -1,3 +1,3 @@
 # ProjectDemocracy
-i m the  one who is hte one 
 
+veryone is farud untill found
